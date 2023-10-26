@@ -5,7 +5,7 @@
 ## Ingredients
 
 - 1 oz espresso roast
-- 1 cup whole milk
+- 1 cup almosd milk
 - Milk frother
 - Optional sweetener
 
